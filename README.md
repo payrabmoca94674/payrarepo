@@ -1,1 +1,1 @@
-Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
+Pelé remains the youngest player to ever win a FIFA World Cup, achieving the feat at the age of 17 years and 249 days in 1958.
