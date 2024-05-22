@@ -1,1 +1,1 @@
-The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
+The FIFA World Cup is the most-watched sporting event globally, with the 2018 final between France and Croatia attracting over a billion viewers.
