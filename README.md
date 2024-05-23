@@ -1,1 +1,1 @@
-The FIFA World Cup is the most-watched sporting event globally, with the 2018 final between France and Croatia attracting over a billion viewers.
+The 1950 World Cup final between Uruguay and Brazil at the Maracanã Stadium in Rio de Janeiro remains the highest-attended soccer match in history, with over 173,000 spectators.
