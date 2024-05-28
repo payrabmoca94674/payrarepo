@@ -1,1 +1,1 @@
-The FIFA Women's World Cup has grown in popularity and prestige, with the United States winning the tournament four times as of 2019.
+Soccer has the power to transcend cultural and political divides, as seen in instances of soccer diplomacy, such as the "ping-pong diplomacy" between the US and China in the 1970s.
