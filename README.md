@@ -1,1 +1,1 @@
-Soccer has the power to transcend cultural and political divides, as seen in instances of soccer diplomacy, such as the "ping-pong diplomacy" between the US and China in the 1970s.
+The "Miracle of Istanbul" in the 2005 UEFA Champions League final saw Liverpool come back from a 3-0 halftime deficit to defeat AC Milan on penalties.
