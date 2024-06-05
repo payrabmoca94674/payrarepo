@@ -1,1 +1,1 @@
-Soccer is known as "football" in most countries outside of the United States and Canada, reflecting its emphasis on using feet to control the ball.
+The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
