@@ -1,1 +1,1 @@
-Pelé remains the youngest player to ever win a FIFA World Cup, achieving the feat at the age of 17 years and 249 days in 1958.
+The development of sports science and analytics has led to advancements in player conditioning, injury prevention, and tactical analysis in soccer.
