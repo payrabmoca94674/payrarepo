@@ -1,1 +1,1 @@
-The development of sports science and analytics has led to advancements in player conditioning, injury prevention, and tactical analysis in soccer.
+The introduction of Video Assistant Referee (VAR) technology has impacted the game by allowing officials to review key decisions, reducing controversial calls.
