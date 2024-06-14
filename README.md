@@ -1,1 +1,1 @@
-La Masia, the youth academy of FC Barcelona, has produced numerous world-class players, including Lionel Messi, Andres Iniesta, and Xavi Hernandez.
+The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
