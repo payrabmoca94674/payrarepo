@@ -1,1 +1,1 @@
-The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
+The Maracanã Stadium in Rio de Janeiro, Brazil, is one of the most iconic soccer venues in the world, hosting numerous historic matches and events.
