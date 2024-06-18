@@ -1,1 +1,1 @@
-The Maracanã Stadium in Rio de Janeiro, Brazil, is one of the most iconic soccer venues in the world, hosting numerous historic matches and events.
+Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
