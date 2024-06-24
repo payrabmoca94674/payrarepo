@@ -1,1 +1,1 @@
-The "Catenaccio" defensive system, pioneered by Italian teams in the mid-20th century, prioritizes tight defensive organization and counter-attacking play.
+The "Icelandic thunderclap," a rhythmic clapping chant performed by Iceland fans, became a symbol of their team's success and underdog spirit in international competitions.
