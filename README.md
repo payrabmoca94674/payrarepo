@@ -1,1 +1,1 @@
-Real Madrid is the most successful club in UEFA Champions League history, winning the tournament 13 times as of 2022.
+Franz Beckenbauer, nicknamed "Der Kaiser," won the FIFA World Cup as both a player (1974) and a manager (1990) with West Germany.
