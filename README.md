@@ -1,1 +1,1 @@
-The "Miracle of Istanbul" in the 2005 UEFA Champions League final saw Liverpool come back from a 3-0 halftime deficit to defeat AC Milan on penalties.
+The Old Firm derby between Scottish clubs Celtic and Rangers is steeped in religious and cultural history, dividing the city of Glasgow.
