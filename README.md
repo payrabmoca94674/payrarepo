@@ -1,1 +1,1 @@
-Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
+Franz Beckenbauer, nicknamed "Der Kaiser," won the FIFA World Cup as both a player (1974) and a manager (1990) with West Germany.
