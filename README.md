@@ -1,1 +1,1 @@
-Soccer has a unique ability to unite people from diverse backgrounds and cultures, fostering a sense of community and belonging among fans worldwide.
+Soccer has become a global phenomenon, with leagues and competitions in countries across six continents, showcasing the sport's universal appeal.
