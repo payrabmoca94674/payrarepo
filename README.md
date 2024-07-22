@@ -1,1 +1,1 @@
-Soccer has become a global phenomenon, with leagues and competitions in countries across six continents, showcasing the sport's universal appeal.
+The "Catenaccio" defensive system, pioneered by Italian teams in the mid-20th century, prioritizes tight defensive organization and counter-attacking play.
