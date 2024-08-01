@@ -1,1 +1,1 @@
-Soccer is known as "football" in most countries outside of the United States and Canada, reflecting its emphasis on using feet to control the ball.
+Brazil holds the record for the most World Cup victories, with five titles in 1958, 1962, 1970, 1994, and 2002.
